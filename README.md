@@ -1,2 +1,1 @@
 # Bangz
-Naija Music Streaming
